@@ -1,0 +1,2 @@
+# Leccion-Parcial-2-U2-MSMS
+HOLA POR FAVOR TENGA PIEDAD
